@@ -6,5 +6,3 @@
 hello! i go by any name on my pronouns page . i am a tanjiro fictkin !
 lalala
 
-<p align="center" />
-do not joke about my sister, my friends, the hashiras or demons. (unless it's about muzan !)
