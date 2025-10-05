@@ -1,4 +1,4 @@
-![](https://komarev.com/ghpvc/?username=tanjirokamadoirl&color=green&base=1477&label=the+other+slayers!)
+![](https://komarev.com/ghpvc/?username=tanjirokamadoirl&color=green&base=1477&label=the+demon+slayer+corp!)
 
 ![1000006038](https://github.com/user-attachments/assets/c18abccf-f455-458a-8891-98253b7f38c2)
 
